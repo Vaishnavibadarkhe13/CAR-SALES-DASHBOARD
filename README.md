@@ -3,7 +3,9 @@
 
 # 🔍𝐊𝐞𝐲 𝐅𝐢𝐧𝐝𝐢𝐧𝐠𝐬/𝐈𝐧𝐬𝐢𝐠𝐡𝐭𝐬:
 
-𝗞𝗣𝗜 𝗕𝗮𝗻𝗻𝗲𝗿: ▪ Year-to-Date (YTD) Total Sales: A remarkable $371.2 million. 
+𝗞𝗣𝗜 𝗕𝗮𝗻𝗻𝗲𝗿: 
+
+▪ Year-to-Date (YTD) Total Sales: A remarkable $371.2 million. 
 
 ▪ Year-over-Year (YOY) Growth in Total Sales: An impressive 23.59% increase. 
 
