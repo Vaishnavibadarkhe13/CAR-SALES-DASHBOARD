@@ -27,7 +27,9 @@
 
 ▪ Chevrolet leads the way with 1,819 cars sold. 
 
-▪ Dodge follows closely with 1,671. ▪ Ford with 1,614.
+▪ Dodge follows closely with 1,671. 
+
+▪ Ford with 1,614.
 
 # 📌𝐃𝐞𝐚𝐥𝐞𝐫𝐬 𝐀𝐧𝐚𝐥𝐲𝐬𝐢𝐬:
 
